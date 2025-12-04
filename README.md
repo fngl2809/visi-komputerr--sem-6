@@ -1,0 +1,1 @@
+# visi-komputerr--sem-6
